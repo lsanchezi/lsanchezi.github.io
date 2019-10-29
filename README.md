@@ -1,2 +1,2 @@
-# lsanchezi.github.io
+# luisizq.github.io
 My personal CV
